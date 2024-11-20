@@ -1,2 +1,2 @@
-ozgurturk9 Tipico123!
-mertozdil35 TipDie123!
+ozgurturk9/Tipico123!
+mertozdil35/TipDie123!
