@@ -1,2 +1,0 @@
-ozgurturk9
-mertozdil35
